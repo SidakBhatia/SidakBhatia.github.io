@@ -1,1 +1,1 @@
-# SidakBhatia.github.io
+# Sidak.github.io
